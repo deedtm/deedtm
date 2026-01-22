@@ -14,7 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-🤖  Make telegram bots
+🤖  I usually make telegram bots
 
 ### **Contacts**:
-- [Telegram](https://t.me/muuuwa)
+- [Telegram](https://t.me/blowwwo)
+- [Kwork](https://kwork.ru/user/deedtm)
